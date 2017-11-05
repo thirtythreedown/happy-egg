@@ -1,4 +1,4 @@
-Breakfast time! We made you eggs.
+Breakfast time! We made you eggs, and they are happy to see you.
 
 Like it? Slap it on a tee-shirt, put it on a sticker at <a href="https://www.redbubble.com/people/thirtythreedown/works/28319205-happy-egg?asc=u">Red Bubble</a>.
 
